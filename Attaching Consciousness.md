@@ -1,6 +1,0 @@
-# Attaching Consciousness
-
-As soon as I leave a shared experience and head alone, I feel the detachment of my consciousness. Once in the comfort of company, a movie or a friend (or both), now suddenly vulnerable and alone as I walk along the side of the road. Music is a way to decrease discomfort of the detachment of consciousness. Media is just pseudo-attachment to the real world. It fills the void. Perhaps this is too narcisstic a view of media. I love music, i love tv shows, i love movies. But am I actively enjoying and learning from it or letting it passively distract me from my detachment? Does it fuel a different kind of detachment? 
-
-
-A healthy life is balanced between attachment and detachment. In a detached state, you can still be attached. to certain objects, hobbies, or maybe how they make you feel. Does J play the violin to escape the free time that drove him crazy last year, or does he play it for the feeling it produces when he accomplishes something. What even is that feeling? The feeling when i was finally able to cling onto that moving thing in the playground and zoom through that straight line with my legs held up high after 30 tries. that accomplishment. but that's different from the whole attachment detachment thing i was tlaking about, idk what i was rambling on about anyways. goodbye.
